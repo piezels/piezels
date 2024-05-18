@@ -1,0 +1,7 @@
+- zels. call me that. (STOP FUCKING CALLING ME SAD)
+- interests? hmm... him I guess.
+- I code in ren'py
+- no collabs lol
+- my discord: piezels
+- she/her (IM A REAL WOMAN. IM NOT FAKE.)
+- fun fact im straight.
