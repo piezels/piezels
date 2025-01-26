@@ -1,4 +1,4 @@
-- zels. call me that. (STOP FUCKING CALLING ME SAD)
+- zels. call me that.
 - interests? hmm... him I guess.
 - I code in ren'py
 - no collabs lol
