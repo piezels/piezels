@@ -1,7 +1,5 @@
-- zels. call me that.
-- interests? hmm... him I guess.
-- I code in ren'py
+- zel or marcel. call me that.
+- interests? hmm... him I guess. (corny ahh)
+- I use ren'py
 - no collabs lol
-- my discord: piezels
-- she/her (IM A REAL WOMAN. IM NOT FAKE.)
-- fun fact im straight.
+- I dont use my github that much so get out
